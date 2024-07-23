@@ -1,5 +1,8 @@
 Privacy Policy
+
+
 Introduction
+
 Epic Island Mutation Survival Quest Apps ("We," "us," or "our") values your privacy. This Privacy Policy outlines how we handle personal information when you use our mobile application (the "App"). By using the App, you agree to this Privacy Policy. We may update this policy from time to time, and any changes will be communicated through the App or our website.
 
 1. Important Contact Information
